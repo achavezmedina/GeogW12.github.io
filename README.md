@@ -1,2 +1,1 @@
-# GeogW12.github.io
-My favorite destinations! 
+# GeogW12.github.io My favorite destinations! 
